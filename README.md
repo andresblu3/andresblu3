@@ -1,5 +1,5 @@
 # 🚀 About Me:
-🔭 I’m currently working on update my GitHub<br>👯 I’m looking to collaborate on a Start Up or any tech company<br>🤝 I am open to collaborating and I am currently looking for a job<br>🌱 I am looking for help to improve my code and my knowledge<br>💬 Ask me about anything, I will read you<br>⚡ I like to keep up to date with the latest news from the world of technology and software development
+🔭 I’m currently working on updating my GitHub<br>👯 I’m looking to collaborate on a Start Up or any tech company<br>🤝 I am open to collaborating and I am currently looking for a job<br>🌱 I am currently improving my skills and looking to work on new projects<br>💬 Ask me about anything, I will read you<br>⚡ I like to keep up to date with the latest news from the world of technology and software development
 
 
 ## 🌐 Socials:
